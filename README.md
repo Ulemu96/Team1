@@ -20,3 +20,4 @@ Mental Health :
  -Records should be kept private to reduce the social weight.
  -End to end communication in real time with the therapist.
  -
+So they Opted for a mental health system on campus from those other ideas _U1emu T1 Collaborator
